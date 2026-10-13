@@ -1,1 +1,0 @@
-# Actividad-6---Ejercicios-pr-cticos-de-aplicaci-n-de-t-cnicas-y-herramientas-de-calidad
